@@ -1,0 +1,4 @@
+- I’m @JoseWF, Systems Engineering Student
+- I’m interested in Data Science and Video Game Development
+- I’m currently learning Python and Unity
+- 📫 reach me at Josealr97@gmail.com
