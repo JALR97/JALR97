@@ -2,4 +2,3 @@ I’m Jose Angel, a systems engineering student, living in Panama. I’m interes
 
 - Itch.io: https://hopeful-undertone.itch.io/
 - Twitter: https://twitter.com/Hopef_U_dertone
-- Reddit: https://www.reddit.com/user/Hopefulndertone
